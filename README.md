@@ -1,1 +1,1 @@
-https://AKiroi.github.io/rsschool-cv/cv
+https://AKiroi.github.io/rsschool-cv/
